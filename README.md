@@ -1,1 +1,1 @@
-# McDonald-s
+# Mc
